@@ -1,1 +1,1 @@
-https://crecker05ru.github.io/rsschool-cv/cv
+https://crecker05ru.github.io/rsschool-cv/
